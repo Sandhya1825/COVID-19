@@ -1,0 +1,2 @@
+# COVID-19
+Rise of Corona virus trend &amp; the impact was shown for different parts of the country. Impact of COVID 19 has been compared with three other countries namely South Korea, Italy &amp; Wuhan. India, being a developing country  &amp; the health care arrangements were not so better as compared with the stated countries, the better option for India is to follow "Lock down" seeing the increasing trend of Corona Virus in India.
